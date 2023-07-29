@@ -1,3 +1,2 @@
 # sexyblackstocking
-just enjoy it!
-(https://ys.mihoyo.com/)
+[just enjoy it!](https://ys.mihoyo.com/)
